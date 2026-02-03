@@ -188,4 +188,4 @@ abdifatah6002@gmail.com
 
 ---
 
-**Made with ❤️ by [Your Name]**
+**Made with ❤️ by [abdifatah]**
